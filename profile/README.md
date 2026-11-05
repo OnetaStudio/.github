@@ -39,7 +39,7 @@ Por eso cuidamos cada proyecto, desde la primera idea hasta su publicación.
 
 Hablemos.
 
-[**oneta.es**](https://oneta.es/contacto)
+[**oneta.es**](https://oneta.es/es/contacto)
 
 
 </div>
